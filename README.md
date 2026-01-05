@@ -1,4 +1,4 @@
-## Hi, I'm Qutaibh ✨
+## Hi, I'm Qutaiba ✨
 
 
 ## 🌐 Socials:
